@@ -136,6 +136,7 @@ Here are some that I like, whether it be their overall design, the colors, or ju
 1. [igvita.com](http://igvita.com)
 1. [ivesvh.com](http://ivesvh.com)
 1. [j-w-v.com](http://www.j-w-v.com/)
+1. [jakealbaugh.com](http://jakealbaugh.com/)
 1. [jakereynolds.co](http://jakereynolds.co)
 1. [jasonhee.com](http://jasonhee.com)
 1. [jasonlydon.com](http://jasonlydon.com)
